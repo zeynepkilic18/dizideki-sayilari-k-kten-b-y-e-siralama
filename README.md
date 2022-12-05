@@ -1,0 +1,1 @@
+# dizideki-sayilari-k-kten-b-y-e-siralama
